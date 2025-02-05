@@ -9,7 +9,7 @@
 
 - 🤝 I’m looking for help with **Charity Jobs**
 
-- 👨‍💻 All of my projects are available at [lightcurse.com](lightcurse.com)
+- 👨‍💻 All of my projects are available at [lightcurse.com](https://lightcurse.com)
 
 - 💬 Ask me about **Adobe Products**
 
